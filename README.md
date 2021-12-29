@@ -1,4 +1,4 @@
-##Privacy Policy for Brainiac Jamb CBT
+## Privacy Policy for Brainiac Jamb CBT
 
 English
 #Privacy Policy
